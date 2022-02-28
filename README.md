@@ -12,4 +12,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about renewable and energy utility sector 
 - 📫 How to reach me: aman939@gmail.com
 - 😄 Pronouns: He/Him
-
+- ✨ [Personal Website](https://amansingh1011.github.io/amansingh/)
